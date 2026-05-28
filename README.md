@@ -2,27 +2,20 @@ greetings fellow humans.
 
 this account is mostly for ponytown bro ok yea
 
-![](https://file.garden/aQf5F0iXlTRXGsYp/IMG_20260419_182041.jpg)
+![](https://file.garden/aQf5F0iXlTRXGsYp/IMG_20260529_005648.png)
 
 mel / melon
            
  she ` her
 intp 5w6 sp594
  
-byi ok
+for more information ok
 
 [strawpage](https://nepxx.straw.page/) [pronouns.cc](https://pronouns.cc/@nightsky)
 
-ok notes IGGG-
+i don't interact first. if you int with me i sometimes don't answer cuz im either in menu or doomscrolling on tiktok
 
-don't copy my beloved cool hard work ponies low quality or not let's not do that yo.. yooo😂😂
+don't copy my cool awesome great ponies i work hard on that either it's detailed or not 😂😂
 
-int freely ok tho i might not talk much cuz how ass i am on socializing ok..? we cool..? yeah..?
-orr i might not answer cuz im doomscrolling on tiktok yeah ig-
+i sometimes crawl back to my roots like countryhumans or smth
 
-although i don't usually int first ya im introverted :) except for close friends aww-
-im not talkative ok
-
-I'm multifandom broo😂😂 i even managed to crawl back to my roots like countryhumans bro jm crine help mee :(
-
-he said HELLO NEIGHBOR--😂😂😂 wtf bro shut up
