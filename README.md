@@ -1,4 +1,3 @@
-hi guys it is i mellatron0904
 
 this account is mostly for ponytown bro ok yea
 
